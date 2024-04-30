@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [2 years](2 years)
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:https://www.linkedin.com/in/akshay-ram-3a7a4b12b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app </h3>
 <p align="left">
 </p>
 
